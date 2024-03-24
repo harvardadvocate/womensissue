@@ -8,8 +8,7 @@ interview: "No"
 ---
 
 Low among the gulls this time it was not you who found me heedless the reeds<br />
-bronze smell of men who started drinking early there are children to put to bed<br />
-Test
+bronze smell of men who started drinking early there are children to put to bed
 
 there are buzzards and pipers a proud arch of cormorants by turns sleek diving or<br />
 spread ceremonious stilled feathers oiled and dripping ecstatic like preachers we
@@ -30,4 +29,4 @@ was it not you the sun sets or is setting it is hard to choose we must ask where
 stand there is a child in my arms sleeping holding a conch and the legs of what lives
 
 in it we shoulder our way past the crab setting birds into the air if not you then your<br />
-eyes if not you then the moon this time is it you and I am asking
+eyes if not you then the moon this time is it you and I am asking g
