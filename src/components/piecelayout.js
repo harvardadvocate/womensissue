@@ -32,7 +32,7 @@ const PieceLayout = ({ children }) => (
           style={{
             margin: `0 auto`,
             paddingTop: `70px`,
-            maxWidth: 960,
+            maxWidth: 1080,
           }}
         >
           {children}
