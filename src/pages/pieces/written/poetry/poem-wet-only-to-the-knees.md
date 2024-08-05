@@ -22,11 +22,10 @@ me it was not you there is someone in the water next to us tugging at our hand t
 a crab arming out of reach and its sister mangled and split washing out only by inches<br />
 its underbelly your face a still moon hanging over every other pinned to it inscrutable
 
-statues once painted and eyed bright the mind balks but so too cathedrals their stone<br />
-the salt air takes its time and the sun takes or gives as she chooses still we have to ask
+the salt air takes its time and the sun takes or gives as she chooses still we have to ask<br />
+was it not you the sun sets or is setting it is hard to choose we must ask where do we
 
-was it not you the sun sets or is setting it is hard to choose we must ask where do we<br />
-stand there is a child in my arms sleeping holding a conch and the legs of what lives
+stand there is a child in my arms sleeping holding a conch and the legs of what lives<br />
+in it we shoulder our way past the crab setting birds into the air if not you then your
 
-in it we shoulder our way past the crab setting birds into the air if not you then your<br />
-eyes if not you then the moon this time is it you and I am asking g
+eyes if not you then the moon this time is it you and I am asking
